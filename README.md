@@ -1,7 +1,7 @@
 ## joao pedro santana 
 sou barbeiro profisional tenho apenas 15 anos trabalho em um das maiores babrbearia de franca-sp 
 trabalho nessa aria a 2 anos tenho 11 certificados 3 deles foram cursos workshops com o seu Elias no momento o melhor barbeiro do brasil 
-instagram [https://www.instagram.com/jp.santana.16/~] 
+[canal you tube](https://www.youtube.com/c/Podpah)
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
